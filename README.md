@@ -1,1 +1,0 @@
-# yurimansani.github.io
